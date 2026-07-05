@@ -34,7 +34,7 @@ good luck twin
                                    
 <img width="935" height="562" alt="image" src="https://github.com/user-attachments/assets/3ee6c3e0-4d04-4eef-8541-eb6af72e1b84" />
 
-![GitHub Views](https://komarev.com/ghpvc/?viltrumsdog=<viltrumsdog>)
+![GitHub Views](https://komarev.com/ghpvc/?viltrumsdog=<viltrumsdog>) < tried to do profile viewcount it didnt worked, help
 
  <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5bd46f49-7fcd-468b-aada-0a537661de1e" />
 
