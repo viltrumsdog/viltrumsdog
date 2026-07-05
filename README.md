@@ -14,7 +14,7 @@
 i love music than anything in the world! 
 
 <img width="50" height="40" alt="image" src="https://github.com/user-attachments/assets/44118f9e-b6f7-40ab-8d26-9b27b310268b" /> some of my favs! 
-kendrick lamar, tyler, the creator, asap rocky, low roar, pinkpantheress, n.e.r.d., odd future, and niko b.
+kendrick lamar, tyler, the creator, asap rocky, low roar, pinkpantheress, n.e.r.d., odd future, limp bizkit, and niko b.
 i wish i could listen to all their music on my record player, but i have only 4 vinyls so far.°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
 <img width="615" height="325" alt="image" src="https://github.com/user-attachments/assets/5397b5bb-2e37-4f15-a6b6-552605f28eb1" /> <img width="130" height="325" alt="image" src="https://github.com/user-attachments/assets/3448b7da-204b-4747-9e43-3f84d3813f0a" />
