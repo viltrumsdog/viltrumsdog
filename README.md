@@ -11,7 +11,7 @@
 <img width="290" height="359" alt="image" src="https://github.com/user-attachments/assets/b34e6ee4-618c-4476-9f49-e53a7f2a6959" />
  <img width="460" height="359" alt="image" src="https://github.com/user-attachments/assets/55340614-9fbd-44d2-b443-e5f03298b4c4" />
 
-i love music than anything in the world! 
+i love music more than anything in the world! 
 
 <img width="50" height="40" alt="image" src="https://github.com/user-attachments/assets/44118f9e-b6f7-40ab-8d26-9b27b310268b" /> some of my favs! 
 kendrick lamar, tyler, the creator, asap rocky, low roar, pinkpantheress, n.e.r.d., odd future, limp bizkit, and niko b.
@@ -29,6 +29,7 @@ invincible, the boys, omniscient reader's viewpoint, the land of lustrous, bojac
 
 ⚠︎  im not interested in discussing any of hoyoverse games or gacha games, dont interract if youre under 15, thats all
 thanks for reading
+
 good luck twin
 
                                    
