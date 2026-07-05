@@ -17,7 +17,7 @@ i love music than anything in the world!
 kendrick lamar, tyler, the creator, asap rocky, low roar, pinkpantheress, n.e.r.d., odd future, and niko b.
 i wish i could listen to all their music on my record player, but i have only 4 vinyls so far.°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
-<img width="635" height="325" alt="image" src="https://github.com/user-attachments/assets/5397b5bb-2e37-4f15-a6b6-552605f28eb1" /> <img width="130" height="325" alt="image" src="https://github.com/user-attachments/assets/3448b7da-204b-4747-9e43-3f84d3813f0a" />
+<img width="615" height="325" alt="image" src="https://github.com/user-attachments/assets/5397b5bb-2e37-4f15-a6b6-552605f28eb1" /> <img width="130" height="325" alt="image" src="https://github.com/user-attachments/assets/3448b7da-204b-4747-9e43-3f84d3813f0a" />
 
 i love sitcom shows like friends and yuong sheldon, theyre my comfort shows ᥫ᭡
 some of shows, books, games, etc. that i like and interested in: 
