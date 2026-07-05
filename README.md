@@ -28,6 +28,7 @@ invincible, the boys, omniscient reader's viewpoint, the land of lustrous, bojac
 
 
 ⚠︎  im not interested in discussing any of hoyoverse games or gacha games, dont interract if youre under 15, thats all
+
 thanks for reading
 
 good luck twin
