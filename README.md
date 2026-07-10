@@ -40,7 +40,7 @@ invincible, the boys, omniscient reader's viewpoint, the land of lustrous, bojac
 
 thanks for reading
 
-good luck twin                 <img width="56" height="40" alt="image" src="https://github.com/user-attachments/assets/5a809a75-6260-4f3e-84ec-8aba015a0c8e" />
+good luck twin                 <img width="56" height="40" alt="image" src="https://github.com/user-attachments/assets/5a809a75-6260-4f3e-84ec-8aba015a0c8e" /> ohh seasalt ohhh pleaseee
 
 
                                    
