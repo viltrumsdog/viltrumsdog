@@ -1,6 +1,7 @@
 ˗ˏˋ ꒰ ✉︎ ꒱ ˎˊ˗ hi hello greeting welcome 
 
-<img width="460" height="201" alt="image" src="https://github.com/user-attachments/assets/2401171d-8714-479d-8870-cd9a37ba79d2" /> <img width="290" height="201" alt="image" src="https://github.com/user-attachments/assets/33c2e284-23c4-43db-84ff-8fb25a9871cb" />
+<img width="460" height="201" alt="image" src="https://github.com/user-attachments/assets/2401171d-8714-479d-8870-cd9a37ba79d2" /> <img width="290" height="201" alt="image" src="https://github.com/user-attachments/assets/33c2e284-23c4-43db-84ff-8fb25a9871cb" /> 
+
 
 
 ˗ˏˋ ★ ˎˊ˗ 17 y.o. 02.03.2009. 
@@ -8,8 +9,16 @@
 
 ▶︎ •၊၊||၊|။||||။‌‌‌‌၊|• 0:10 ⋆｡𖦹°⭒˚｡⋆☆⋆｡𖦹°‧★
 
-<img width="290" height="359" alt="image" src="https://github.com/user-attachments/assets/b34e6ee4-618c-4476-9f49-e53a7f2a6959" />
- <img width="460" height="359" alt="image" src="https://github.com/user-attachments/assets/55340614-9fbd-44d2-b443-e5f03298b4c4" />
+
+<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/1efc5008-8e6d-4cd5-aff1-d2de51d0f3ca" />
+ <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/9ffacec0-09df-49ab-8f28-08c8e7af54c7" /> <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/d65730e8-a6af-4660-a380-0000f21c7c30" /> <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/c0911299-687c-4a66-a652-fd003778c2e3" /> <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/85724214-d729-4f83-b90c-bdc67dabf81d" /> <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/e01c61a1-13c7-455c-8f79-ca5d67d47efd" />
+
+
+
+
+
+
+
 
 i love music more than anything in the world! 
 
@@ -17,7 +26,7 @@ i love music more than anything in the world!
 kendrick lamar, tyler, the creator, asap rocky, low roar, pinkpantheress, n.e.r.d., odd future, limp bizkit, and niko b.
 i wish i could listen to all their music on my record player, but i have only 4 vinyls so far.°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
-<img width="615" height="325" alt="image" src="https://github.com/user-attachments/assets/5397b5bb-2e37-4f15-a6b6-552605f28eb1" /> <img width="130" height="325" alt="image" src="https://github.com/user-attachments/assets/3448b7da-204b-4747-9e43-3f84d3813f0a" />
+<img width="625" height="325" alt="image" src="https://github.com/user-attachments/assets/5397b5bb-2e37-4f15-a6b6-552605f28eb1" /> <img width="130" height="325" alt="image" src="https://github.com/user-attachments/assets/3448b7da-204b-4747-9e43-3f84d3813f0a" />
 
 i love sitcom shows like friends and yuong sheldon, theyre my comfort shows ᥫ᭡
 
@@ -31,7 +40,8 @@ invincible, the boys, omniscient reader's viewpoint, the land of lustrous, bojac
 
 thanks for reading
 
-good luck twin
+good luck twin                 <img width="56" height="40" alt="image" src="https://github.com/user-attachments/assets/5a809a75-6260-4f3e-84ec-8aba015a0c8e" />
+
 
                                    
                                    
